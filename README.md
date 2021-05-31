@@ -1,2 +1,2 @@
-www.dennialwin.me
+dennialwin.me
 
